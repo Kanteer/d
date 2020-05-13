@@ -12,6 +12,8 @@ There was too many times where I was given a second chance. I should have been b
 
 This is my final goodbye from the sound space community. I hope you all have a good day, and farewell everyone. It was fun while it lasted, but now fun can only be found in heaven. And that's where I'm going.
 
+Suicide is probably the best choice as everyone will be happier. Everyone will say, "We've done it! We've made the kid kill himself! We've destroyed the evil!" So I'm going to kill myself. I hope you guys are happy.
+
 Goodbye everyone.
 
 Sincerely, Tripple.
