@@ -1,4 +1,4 @@
-Hi, it's me Tripple.
+Hi, it's me Tripple/Kanteer.
 
 I got banned on the Sound Space server for a good reason. I fucked up big time. I had too many second chances.
 
